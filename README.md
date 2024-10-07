@@ -1,8 +1,8 @@
 - 👋 Hi, I’m @IZEREDukundane
 - 👀 I’m interested in Software Engineering and Pharmaceutical sciences
-- 🌱 I’m currently learning a Pharmacist and always learner
+- 🌱 I’m currently learning learner by practice.
 - 💞️ I’m looking to collaborate on health in digital ore
-- 📫 How to reach me via email/Tel or just in personal 
+- 📫 How to reach me via e-mail: blaiseinnocenti@gmail.com 
 - 😄 Pronouns: No excuse to keep pushing the limit 
 - ⚡ Fun fact: all around us are telling the truth but we use ignore and look for extra
 
