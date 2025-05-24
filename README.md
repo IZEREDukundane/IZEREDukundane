@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on health in digital ore
 - 📫 How to reach me via e-mail: blaiseinnocenti@gmail.com 
 - 😄 Pronouns: No excuse to keep pushing the limit.
-- ⚡ Fun fact: all around us are telling the truth but we used to ignore and go baised.
+- ⚡ Fun fact: Bananas are berries, but strawberries aren’t. Science just out here gaslighting us like: "Trust me, I'm a botanist."
 
 <!---
 IZEREDukundane/IZEREDukundane is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
